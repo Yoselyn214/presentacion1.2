@@ -5,4 +5,4 @@
 - Me gusta los videojuegos 🕹🎮
 - Espero pronto graduarme 🎓
 - Quiero trabajar en una empresa de videojuegos🕹🎮 
- -Amante de los libros📚📚
+ - Amante de los libros📚📚
